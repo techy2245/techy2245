@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @techy2245
-- 👀 I’m interested in new application in android and windows in apps and try to learn features in android and windows
+- 👀 I’m interested in new application in android and windows apps and try to learn and try out these new features in these softwares
 - 🌱 I’m currently learning in Standard 8
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://t.me/sinne_sin
