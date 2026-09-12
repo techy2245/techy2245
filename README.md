@@ -1,4 +1,4 @@
-# 👋 Hi, I'm @techy2245
+# 👋 Hi, I'm Shaun
 
 ### 💻 Student • Developer • Open-Source Enthusiast • Tech Explorer
 
